@@ -16,7 +16,7 @@ i dont really have a specific dni, just be normal and not a friggen weirdo Idk (
 
 i am a system and sometimes im not the one at front, keep that in mind!
 
-i will not match ur energy im sorry bruh caps will stay on regardless what the situation is
+i will not match ur energy im sorry bruh the way i talk to u fully depends on how im feeling
 
 i enjoy making new friends!!! shoot me a whisper and i will be #OnMyWay to get bffmaxxed with u (it takes me a little bit to warm up but shhhh)
 
