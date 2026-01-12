@@ -2,7 +2,7 @@
 
 ![](https://files.catbox.moe/k62v2j.png)
 
-# @ NOOBYSLASHER
+# @ JAMESWARRIOR14
 
 ### [my super duper awesome strawpage where you can tell me alllll about ur day!!!](https://hostbody.straw.page)
 
